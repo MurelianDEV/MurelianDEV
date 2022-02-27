@@ -4,4 +4,4 @@
 <------------------------->
     [🌠] My Socials
        Facebook: https://www.facebook.com/helixabg
-       Discord: -Helixa$#1312 (Don't dm me for support, only in group!)
+       Discord: -Helixa$#1312 (Don't dm me for support, only in group!
